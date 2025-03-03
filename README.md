@@ -71,4 +71,4 @@ terlampir
 ## **📞 Kontak**  
 Jika ada pertanyaan atau ingin berkolaborasi, hubungi saya di:  
 📧 Email: kussumabuddi369@gmail.com  
-🔗 LinkedIn: [linkedin.com/in/username](https://linkedin.com/in/yusuf-budi-kusuma)  
+🔗 LinkedIn: [linkedin.com/in/yusufbudikusuma](https://linkedin.com/in/yusufbudikusuma)  
